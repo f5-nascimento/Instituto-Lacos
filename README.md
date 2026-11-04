@@ -1,1 +1,1 @@
-# Instituto-La-os
+# Instituto Laços
